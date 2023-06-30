@@ -20,7 +20,7 @@
 
 😊 &nbsp; Enthusiastic about new data methodologies and AI evolution
 
-🎓 &nbsp; Master in mechanical engineering and 4 years experience in Sales Engineering
+🎓 &nbsp; Master in mechanical engineering and 4 years experience in sales engineering
 
 ⚽ &nbsp; Passionate about football, muay-thai and new and crazy experiences
 
