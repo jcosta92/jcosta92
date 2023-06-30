@@ -19,13 +19,9 @@
 <h3> 👨🏻‍💻 About Me </h3>
 
 😊 &nbsp; Enthusiastic about new data methodologies and AI evolution
-
 🎓 &nbsp; Master in mechanical engineering and 4 years experience in sales engineering
-
 ⚽ &nbsp; Passionate about football, muay-thai and new and crazy experiences
-
 📊 &nbsp; Open for projects collaborations and job opportunities
-
 👷 &nbsp; Hard-worker: my persistency and stubbornness gives me the strength to overcome any challenge
 
 <br />
