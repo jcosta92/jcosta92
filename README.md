@@ -1,7 +1,7 @@
 ### Hi, I am José.
 #### Boss level in Excel, Sales Engineering and Python.
 
-<img align="left" width="480" height="250" alt="GIF" src="https://media.giphy.com/media/l41JMXnXn4E7WQR8s/giphy.gif" />
+<img align="left" width="600" height="312" alt="GIF" src="https://media.giphy.com/media/l41JMXnXn4E7WQR8s/giphy.gif" />
 
 <br />
 <br />
